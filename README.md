@@ -3,7 +3,7 @@
 ![IMG_20250203_172610_884](https://github.com/user-attachments/assets/36de6b06-9c4f-4775-a906-eb8997a2b263)
 ![409126847-fbb4c844-f2de-430a-a268-59d5b9a3116e]
 
-![409126902-98378924-6e2a-4a18-8fd6-590fb7a97814](https://github.com/user-attachments/assets/343f19b5-6c17-47de-838f-fdc9b7028408)
+(https://github.com/user-attachments/assets/343f19b5-6c17-47de-838f-fdc9b7028408)
 
 ![409126847-fbb4c844-f2de-430a-a268-59d5b9a3116e](https://github.com/user-attachments/assets/2695448f-304f-43de-b5c9-62385575e623)
 
