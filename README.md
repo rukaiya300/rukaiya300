@@ -1,5 +1,15 @@
 ![c0fd29c895c4fc72daa9d3aa1a47a896f2ff42cc](https://github.com/user-attachments/assets/d9de480c-8769-428b-809c-98d7841b04d7)
 
+![final-fantasy-final-fantasy-vii](https://github.com/user-attachments/assets/0e79976e-2275-4267-87dc-055d8cc9fa21)
+
+
+![sephiroth-final-fantasy-7](https://github.com/user-attachments/assets/a8a9917e-f384-4167-be47-0ee7e662b7d7)
+
+
+![goodnight-picmix](https://github.com/user-attachments/assets/d5803100-6a28-428a-a7ab-6451f55aece6)
+
+
+![409151429-ff0a7842-b2e3-4377-ac67-f9168cb08b1c](https://github.com/user-attachments/assets/be887b3b-0610-462a-852d-9f4dd3f46110)
 
 ![IMG_20250203_172610_884](https://github.com/user-attachments/assets/36de6b06-9c4f-4775-a906-eb8997a2b263)
 
