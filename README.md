@@ -1,4 +1,5 @@
-![kaigaku-demon-slayer](https://github.com/user-attachments/assets/5e47d95f-61c2-4010-bca7-2e028610751b)
+![demon-slayer-kaigaku](https://github.com/user-attachments/assets/5670ef6b-999c-4cdc-b0e3-ca96c4bae6a4)
 
 
-![demon-slayer-kaigaku](https://github.com/user-attachments/assets/bf6a8639-ae67-47e6-8e17-4ed6e4eab573)
+![kaigaku-demon-slayer](https://github.com/user-attachments/assets/8888a6ec-14eb-4167-9c0e-b8169fdc89d7)
+
