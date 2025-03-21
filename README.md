@@ -7,7 +7,7 @@ I don't care about your opinion if you don't believe me when I say a word about 
 I don't like this kind of friends btw They makes me feel nauseous..   
 
 and btw This is directed to you @villainousthlng
-
+![٢٠٢٥٠٣٢١_١٦٥٢٤٠](https://github.com/user-attachments/assets/c5852fa1-c878-47a8-8ad7-c6ae53b9bbdb)
 shame on you
 I was regret agreeing to befriend you... I had to refuse friend you
 
