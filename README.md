@@ -2,7 +2,7 @@
 
 You want to be my friend I will accept 
 but
-I don't care about your opinion if you don't believe me when I say a word about  me and About my daily life Then you start accusing me of stupid things like I'm a liar and When you befriend me You gone say I'm weird and freak???.FYI I'm not weird.، I  be joking with you, not harassing you، You idiot، I mean why would I molest a child? Are you crazy or what? . I will block you without hesitation 
+I don't care about your opinion if you don't believe me when I say a word about  me and About my daily life Then you start accusing me of stupid things like I'm a liar and When you befriend me You gone say I'm weird and freak???.FYI I'm not weird.، When I play with you I  be joking with you, not harassing you، You idiot، I mean why would I molest a child? Are you crazy or what?..I mean How do I know that I am playing with a child? Do you think that I like to molest a child??? Then someone comes and says I'm a harasser, like fuck off I will block you without hesitation! 
 
 I don't like this kind of friends btw They makes me feel nauseous..   
 
