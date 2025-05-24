@@ -1,3 +1,7 @@
+here my name in Discord and roblox 
+Discord → ruk300
+roblox  → ruk_531
+_______________________________
 ![kaigaku-demon-slayer](https://github.com/user-attachments/assets/8888a6ec-14eb-4167-9c0e-b8169fdc89d7)
 
 bro i like making new friend.You want to be my friend I will accept 
