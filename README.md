@@ -1,4 +1,5 @@
-here my name in Discord and roblox 
+here my name in Discord and roblox"
+⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪
 Discord → ruk300
 roblox  → ruk_531
 _______________________________
